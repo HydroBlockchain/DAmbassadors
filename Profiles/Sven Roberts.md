@@ -7,4 +7,4 @@ After graduating from Tilburg University (Marketing Management) I built up a car
 
 _“The DA Program makes it possible for me to contribute my marketing knowledge to Hydrogen. I am clearly not a fan of hyping a token but I do understand the power of marketing. Based on a well designed marketing plan I envision Hydrogen to become a well known and respected brand within the blockchain space.” _
 
-Please give Sven a warm welcome! You can find him on [LinkedIn](https://www.linkedin.com/in/sven-roberts-a8b63953).
+You can find him on [LinkedIn](https://www.linkedin.com/in/sven-roberts-a8b63953).
