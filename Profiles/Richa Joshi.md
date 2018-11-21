@@ -6,4 +6,4 @@ _“Close to 10 years experience in Financial, Digital Strategy and Transformati
 
 _“My main priority for Hydro would be to deep dive into and develop data-driven optimizations on SEO and the products which we have created to further boost awareness for Hydro. The other things which I want to focus on are to create the set of customer personas which we want to target and then develop digital strategy/marketing campaigns tailored specifically for each demography/customer needs.”_
 
-Please give Richa a warm welcome! You can find her on [LinkedIn](https://www.linkedin.com/in/richa-joshi-90b04126/).
+You can find her on [LinkedIn](https://www.linkedin.com/in/richa-joshi-90b04126/).
