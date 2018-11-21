@@ -8,4 +8,4 @@ _I am a dedicated, organized & methodical individual. I have good interpersonal 
 
 _“I believe Hydro deserves to be one of the top ten blockchain projects and I will do everything that I can for Hydro to achieve this. I will help bring new developers to the platform by spreading the word about hydro in social media and crypto related forums, as well using my connections to get more platforms to integrate Hydro products."_
 
-Please give Saurav a warm welcome! You can find him on [LinkedIn](https://www.linkedin.com/in/saurav-kumar-77b60776/).
+You can find him on [LinkedIn](https://www.linkedin.com/in/saurav-kumar-77b60776/).
