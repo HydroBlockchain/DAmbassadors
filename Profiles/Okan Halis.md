@@ -6,4 +6,4 @@
 
 *“Hydro proposes to be the platform which, through its comprehensive set of solutions built on blockchain, provides easy and secure access to systems that we all use in our daily lives. Making the most of the technological opportunities blockchain brings requires enhancing the understanding of why the Hydro platform is superior to existing solutions. I am excited to design and develop communication experiences which help reinforce the advantages of using the Hydro platform.”*
 
-Please give Okan a warm welcome! You can find him on [LinkedIn](https://www.linkedin.com/in/okanhalis/).
+You can find him on [LinkedIn](https://www.linkedin.com/in/okanhalis/).
