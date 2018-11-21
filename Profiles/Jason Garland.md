@@ -6,4 +6,4 @@ _“I am a technology, language, and philosophy-loving entrepreneur with a passi
 
 _“I believe Hydro has the potential to disrupt the aged fintech space through ease-of-use, security, and its strong community of users and developers. As both Hydro and the market itself are in early stages of growth, I believe that community-building is essential. This includes the core community of developers and designers, the greater community of users and supporters, as well as potential contributors and users (So far Hydro has done an amazing job at this!) Through planning, development, and outreach, I hope to help Hydro demonstrate a continued creation of value and sustained growth on its mission to bring fintech to the masses."_
 
-Please give Jason a warm welcome! You can find him on [LinkedIn](https://www.linkedin.com/in/jasongarland/)
+You can find him on [LinkedIn](https://www.linkedin.com/in/jasongarland/)
